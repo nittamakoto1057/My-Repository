@@ -1,1 +1,0 @@
-# nittamakoto1057
